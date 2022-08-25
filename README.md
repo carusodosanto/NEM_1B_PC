@@ -4,4 +4,5 @@
 #### MINHA TURMA É O 1B
 ##### DISCIPLINA PENSAMENTO COMPUTACIONAL
 [CLIQUE AQUI](https://www.youtube.com/watch?v=T3Y6RRSDm4o)
-![](https://www.tiktok.com/discover/edit-do-messi-neymar-e-ronaldo)
+![image](https://user-images.githubusercontent.com/107946586/186660387-fa4947ef-3997-4ca0-857b-647c26fe3ce8.png)
+
